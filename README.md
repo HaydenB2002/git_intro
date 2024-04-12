@@ -1,1 +1,2 @@
 Hayden Burgess
+burgessh@oregonstate.edu
